@@ -1,6 +1,16 @@
 # -Found-infinite-life-are-create-new-knowledge-and-it-is-corresponding-tools-_-four
 the standard to be achieved by the device  Description:_1.symbiosis grows to the same level; 2. immortality of  tools helps enterprises grow  continusly and prolong life and immortality is  no longer a   dream  3.Three major components  4.Digital pictographic  stream
 
+公开于 2020-10-12 10:18　
+
+原创：陈燕玲，恩师李笑来，凡超，天助（它神）……
+
+注释：这里的天助指神，我尊称它为它神，但不影响我们任何发表，发布，出版和销售
+
+注释：写李笑来名字是《上道下器》的书面文字沟通知识产权是建立在李笑来著作〈通往财富自由之路〉专栏的52个系统化概念和其它著作基础上，也可以说没有恩师李笑来教我们的根本智，就没有我们的后得智，但他不影响我们《上道下器》及相关作品或著作原创的任何发表，发布，发行，出版和销售；
+
+真如实器工具究竟长什么样呢？
+
 永生的工具助企业持续成长延年益寿，企业永生不再是梦想:
 
 永生的工具
